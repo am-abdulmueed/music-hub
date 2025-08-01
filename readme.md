@@ -1,1 +1,1 @@
-### https://www.mediafire.com/file/rh9fl7rvvggrhsk/muxix-release+signed.apk/file
+### https://www.mediafire.com/file/5fn4rc47asfydm6/muxix-release+signed.apk/file
